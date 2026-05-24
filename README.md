@@ -1,2 +1,2 @@
 ### Hi there 👋
-I am Ayananta, a human based on Earth!
+I am Ayananta, a human based in Earth!
